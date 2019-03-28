@@ -1,2 +1,2 @@
 # Minecraft Client Archives
-[Archives Site](minecraftclientarchive.github.io)
+[Archives Site](https://bit.ly/2UV4l8Z)
